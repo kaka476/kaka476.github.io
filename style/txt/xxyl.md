@@ -1,0 +1,23 @@
+# 杏鑫娱乐
+
+## 测速域名
+
+[speed.xxyule666.net](speed.xxyule666.net)
+
+[speed.xxyule888.net](speed.xxyule888.net)
+
+## 登录
+
+[https://www.vlaiwe99.club/#/login](https://www.vlaiwe99.club/#/login)
+
+[https://www.owf7ufdj.club/#/login](https://www.owf7ufdj.club/#/login)
+
+[https://www.8mz96w.cn/#/login](https://www.8mz96w.cn/#/login)
+
+[https://www.xingxin666.com/#/login](https://www.xingxin666.com/#/login)
+
+[https://www.wdy6n0.cn/#/login](https://www.wdy6n0.cn/#/login)
+
+## 自动注册
+
+[http://www.xingxin66.com/#/register/s1/kpjpep](http://www.xingxin66.com/#/register/s1/kpjpep)
