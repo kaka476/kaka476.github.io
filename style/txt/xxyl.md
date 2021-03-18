@@ -20,4 +20,4 @@
 
 ## 自动注册
 
-[http://www.xingxin66.com/#/register/s1/kpjpep](http://www.xingxin66.com/#/register/s1/kpjpep)
+[www.xingxin66.com/s1/kpjpep](http://www.xingxin66.com/s1/kpjpep)
