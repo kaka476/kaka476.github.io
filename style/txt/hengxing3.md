@@ -16,5 +16,5 @@
 
 ## 招商链接
 
-[bot.edcfrv.bar/s1/kgkppu](bot.edcfrv.bar/s1/kgkppu)
+[www.hxingyl3.com/s1/kgjvvj](www.hxingyl3.com/s1/kgjvvj)
 
