@@ -1,23 +1,19 @@
 # 博猫2
 
-## 链接
+## 域名中心：
 
-[www.bme88.com](www.bme88.com)
+[https://bomao2.co](https://bomao2.co)
 
-[www.bm668.com](www.bm668.com)
+[https://bomao2.vip](https://bomao2.vip)
 
-[www.bm2new.com](www.bm2new.com)
+[https://bm2.fun](https://bm2.fun)
 
-[www.88bm2.com](www.88bm2.com)
+## 代理中心：
 
-## 代理中心
+[https://agent.bme88.com](https://agent.bme88.com)
 
-[https://agent.bme518.com/auth/signin](https://agent.bme518.com/auth/signin)
+[https://agent.88bm2.com](https://agent.88bm2.com)
 
 ## 招商链接
 
-[http://www.bm2new.com/reg/8ca29310](http://www.bm2new.com/reg/8ca29310)
-
-## app
-
-[https://download.bm2app.com/downpage/?agentId=8ca29310](https://download.bm2app.com/downpage/?agentId=8ca29310)
+[https://www.218bm2.com/reg/f1d83035](https://www.218bm2.com/reg/f1d83035)
