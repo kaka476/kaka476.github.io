@@ -6,7 +6,13 @@
 
 [speed.xxyule888.net](speed.xxyule888.net)
 
-## 登录
+## 登录网址
+
+[https://www.xakdzy.com/#/login](https://www.xakdzy.com/#/login)
+
+[https://www.xdslty.com/#/login](https://www.xdslty.com/#/login)
+
+[https://www.newacoder.com/#/login](https://www.newacoder.com/#/login)
 
 [https://www.vlaiwe99.club/#/login](https://www.vlaiwe99.club/#/login)
 
