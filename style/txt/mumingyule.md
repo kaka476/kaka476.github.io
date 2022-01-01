@@ -1,27 +1,31 @@
-# 沐鸣娱乐链接
+#  沐鸣娱乐
 
-## 登陆域名及测速域名
+## 链接
 
-[speed.oirti.space](speed.oirti.space)
+[muminyule666.com](muminyule666.com)
 
-[speed.a90gue.space](speed.a90gue.space)
+[xingc3.net](xingc3.net)
 
-[speed.ae3rg.space](speed.ae3rg.space)
+[xincai3.net](xincai3.net)
 
-## 关键字主域名
+[xincaii3.com](xincaii3.com)
 
-[www.mmyule2.com](www.mmyule2.com)
+[www.8haeg.info](www.8haeg.info)
 
-[www.mmyule2.net](www.mmyule2.net)
+[www.ljd8r.info](www.ljd8r.info)
 
-[www.mmyl2.net](www.mmyl2.net)
+[www.8yhwf.info](www.8yhwf.info)
 
-[www.mumin2.net](www.mumin2.net)
+[www.0kfg.info](www.0kfg.info)
 
-[www.mumin2.com](www.mumin2.com)
+[www.9uj4.info](www.9uj4.info)
 
-[www.mumingyule2.net](www.mumingyule2.net)
+[mumingyule888.com](mumingyule888.com)
 
-## 自动注册
+[xincaii3.com](xincaii3.com)
 
-[www.muming222.net/s1/kbkbyv](www.muming222.net/s1/kbkbyv)
+## 招商链接
+
+[www.8urf.info/s1/jprevj](www.8urf.info/s1/jprevj)
+
+[www.8urf.info/s1/jprevj](www.8urf.info/s1/jprevj)

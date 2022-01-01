@@ -1,5 +1,15 @@
 ## 麒麟网II网址：
 
+[https://www.kl302.com](https://www.kl302.com)
+
+[https://www.kl303.com](https://www.kl303.com)
+
+[https://www.kl304.com](https://www.kl304.com)
+
+[https://www.kl305.com](https://www.kl305.com)
+
+[https://www.kl306.com](https://www.kl306.com)
+
 [https://www.qlw2.com](https://www.qlw2.com)
 
 [https://www.705-qlw2.com](https://www.705-qlw2.com)
@@ -16,8 +26,12 @@
 
 [https://888.qlw2.cn](https://888.qlw2.cn)
 
-## 自动注册
 
-[https://www.705-qlw2.com/user/login-form/register/f9ce915e4b59eeced3b15ee5ceac670e](https://www.705-qlw2.com/user/login-form/register/f9ce915e4b59eeced3b15ee5ceac670e)
 
-[https://www.705-qlw2.com/user/login-form/register/ed777e06dda32cdaa6d4f305a7c446c1](https://www.705-qlw2.com/user/login-form/register/ed777e06dda32cdaa6d4f305a7c446c1)
+## 招商链接
+
+
+
+[https://www.705-qlw2.com/user/login-form/register/70185a023fd12bc5c46c3c4308d94481](https://www.705-qlw2.com/user/login-form/register/70185a023fd12bc5c46c3c4308d94481)
+
+[https://www.kl303.com/user/login-form/register/fce3e3355ecf44d6ef11df5d48fe7ce6](https://www.kl303.com/user/login-form/register/fce3e3355ecf44d6ef11df5d48fe7ce6)
