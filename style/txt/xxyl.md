@@ -24,6 +24,10 @@
 
 [https://www.wdy6n0.cn/#/login](https://www.wdy6n0.cn/#/login)
 
-## 自动注册
+## 招商链接
 
-[www.xingxin66.com/s1/kpjpep](http://www.xingxin66.com/s1/kpjpep)
+[xingxin99.net/s1/kpjpep](xingxin99.net/s1/kpjpep)
+
+[xingxin88.net/s1/kpjpep](xingxin88.net/s1/kpjpep)
+
+

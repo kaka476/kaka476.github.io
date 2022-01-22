@@ -16,4 +16,6 @@
 
 ## 招商链接
 
-[https://www.218bm2.com/reg/f1d83035](https://www.218bm2.com/reg/f1d83035)
+[http://www.bm2new.com/reg/0ab25bb1](http://www.bm2new.com/reg/0ab25bb1)
+
+[https://www.bme866.com/reg/7hb0f7cm](https://www.bme866.com/reg/7hb0f7cm)
