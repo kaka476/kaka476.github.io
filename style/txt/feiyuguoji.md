@@ -12,6 +12,10 @@
 
 [http://vip.fyod003.com/#/reg?code=lD2r4ENBz8uB](http://vip.fyod003.com/#/reg?code=lD2r4ENBz8uB)
 
+[http://888.fyod002.com/#/reg?code=XqB24vOzR5uP](http://888.fyod002.com/#/reg?code=XqB24vOzR5uP)
+
+[http://888.fyod005.com/#/reg?code=pRkfnK4tzEuM](http://888.fyod005.com/#/reg?code=pRkfnK4tzEuM)
+
 ## 登录网址
 
 [https://vip.fyod001.com](https://vip.fyod001.com)
@@ -95,3 +99,4 @@
 [https://fg0009.com](https://fg0009.com)
 
 [https://www.fg0009.com](https://www.fg0009.com)
+

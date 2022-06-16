@@ -18,6 +18,8 @@
 
 [www.2hz518.com](www.2hz518.com)
 
-## 注册链接
+招商链接
 
-[https://2hz001.com/auth/reg/28421916](https://2hz001.com/auth/reg/28421916)
+[https://www.n2hz.com/reg/qd6z7mlz](https://www.n2hz.com/reg/qd6z7mlz)
+
+[https://www.n2hz.com/reg/dt8lpkws](https://www.n2hz.com/reg/dt8lpkws)
